@@ -1,1 +1,1 @@
-Here you can see all of my relevant certificates like from university or school. All certificates except the final school ceritificate(Abiturzeugnis) are in English.
+Here, you can see all of my relevant certificates. All certificates except the final school certificate (Abiturzeugnis) are in English.
